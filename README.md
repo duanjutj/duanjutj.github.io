@@ -1,6 +1,6 @@
 # 短剧网提供海量免费短剧在线观看。汇聚全网热门短剧和精彩短视频,是短视频爱好者的必备网站
 
-短剧分享网: <https://duanjutj.github.io>
+免费短剧网: <https://duanjutj.github.io>
 
 看短剧上找剧网：[zhaoju.cc](https://zhaoju.cc)：免费短剧网盘资源在线观看平台：随时随地，畅享追剧乐趣
 
